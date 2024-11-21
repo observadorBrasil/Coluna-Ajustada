@@ -1,0 +1,1 @@
+# Coluna-Ajustada
